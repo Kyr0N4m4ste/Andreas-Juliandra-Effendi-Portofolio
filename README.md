@@ -1,1 +1,0 @@
-# Andreas-Juliandra-Effendi-Portofolio
